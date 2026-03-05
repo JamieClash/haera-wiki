@@ -1,0 +1,4 @@
+>"Soon, a great peril will fall upon the Kingdom. Evil incarnate, in the form of a devastating dragon will strike Marcell. It is by defeating this malignant creature that my son will be crowned King."
+>- Prophecy by [[Arthur Lukeheart]] three years before the incident.
+
+King Arthur Lukeheart II is the current [[Human]] king of [[The Kingdom of Marcell]]. He is a valiant warrior in battle, having conquered many foes in regional battles mostly around [[Upper Central Haera]]. His late father, [[Arthur Lukeheart]] deemed his child will be destined for kingship after slaying a mighty dragon, which ultimately occurred at the cost of several lives, including that of his father. 

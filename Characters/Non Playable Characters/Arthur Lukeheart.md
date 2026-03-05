@@ -1,0 +1,3 @@
+Arthur Lukeheart (not to be confused with [[King Arthur Lukeheart II]]) was the [[Human]] king of [[The Kingdom of Marcell]] and died at age 72, being defeated by an evil dragon later slain by his son, [[King Arthur Lukeheart II]]. 
+
+In life, Lukeheart occasionally had bursts of prophetic vision, which has influenced his ruling over the course of his kingship. Citizens were generally amiable towards his use of his strange power, and did not attempt to thwart his reign as he was a wise king whose tactical and strategic knowledge was greatly valued in battle, and was considerably generous to the common people.

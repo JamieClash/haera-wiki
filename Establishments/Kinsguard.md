@@ -1,0 +1,3 @@
+The Kinsguard (not Kingsguard) is a guard force primarily trained and based in [[The Kingdom of Marcell]]. It was first introduced by Queen [[Amelia Lukeheart]] during [[The Classical Era]]. 
+
+Though not strictly bound to The Kingdom of Marcell, the Kinsguard usually exclusively operates to protect the citizens of Marcell from monstrous threats. Seldomly, the Kinsguard may be deployed to protect important carriages as they journey across [[Haera]]. 

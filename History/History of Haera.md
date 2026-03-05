@@ -1,4 +1,4 @@
-The history of Haera is largely defined by four eras:
+The history of Haera is largely defined by four eras, in chronological order:
 - [[The Forgotten Times]]
 - [[The Classical Era]]
 - [[The Warring Times]]

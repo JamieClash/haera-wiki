@@ -1,0 +1,1 @@
+The Scholars of Thought are a collection of philosophers, historians and theorists well known throughout [[Haera]]. The Scholars have extensive reach across the continent, with primary bases in [[Ego]], [[Faeria]] and [[Altrae]]. 

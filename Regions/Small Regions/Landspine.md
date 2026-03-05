@@ -1,0 +1,1 @@
+Landspine is a vast multi-directional mountain range that borders [[Western Haera]], [[Central Haera]] and the mountains of [[Drakehidt]]. 
