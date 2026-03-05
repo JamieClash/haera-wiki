@@ -1,0 +1,22 @@
+The Outer Planes are [[Plane|Planes]] consisting of:
+- [[Abyss]]
+- [[Acheron]]
+- [[Arborea]]
+- [[Arcadia]]
+- [[Beastlands]]
+- [[Bytopia]]
+- [[Carceri]]
+- [[Elysium]]
+- [[Gehenna]]
+- [[Hades]]
+- [[Limbo]]
+- [[Mechanus]]
+- [[Mount Celestia]]
+- [[Nine Hells]]
+- [[Outlands]]
+- [[Pandemonium]]
+- [[Ysgard]]
+
+Two subsets of the Outer Planes include:
+- [[Lower Planes]]
+- [[Upper Planes]]

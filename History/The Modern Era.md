@@ -1,0 +1,1 @@
+The Modern Era is the current era in which [[Haera]] lies. It succeeds [[The Warring Times]] in the [[History of Haera]]. 

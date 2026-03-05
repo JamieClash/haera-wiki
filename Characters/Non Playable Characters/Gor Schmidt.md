@@ -1,0 +1,3 @@
+Gor Schmidt is the second-in-command of the [[Seaside Trading Guild]]. He is a [[Human]] based in [[Altrae]]. Though Schmidt works under [[Elaine Ridgewater]], he is seen more often in public areas than her, taking over minor dealings in her place or investigating and recruiting incoming merchants.
+
+Schmidt is often seen as a bodyguard for Ridgewater in important transactions, and it is well-known that he was previously an adventurer as a Rogue. 

@@ -1,0 +1,1 @@
+Soarre is part of the [[Northern Mountains]] in [[Haera]], stretching across the north of the continent. It lies to the west of [[Ergo]] and to the north of [[Schmine]].

@@ -1,0 +1,1 @@
+Forbur Wilkinberry is a [[Gnome]] professor in [[The School of Ego]] who is regarded as one of the greatest wizard academics of [[The Modern Era]], having invented numerous items that store and contain magic, and pioneered the development and theory of [[Stored Magic]] along with his wife [[Seradine Blackwood]]. 

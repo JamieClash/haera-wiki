@@ -1,0 +1,1 @@
+Schmine is part of the [[Northern Mountains]] in [[Haera]], stretching across the central north of the continent. It lies on the border of [[Northern Haera]] and [[Upper Central Haera]].

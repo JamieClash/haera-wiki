@@ -1,0 +1,1 @@
+Northern Haera is a region of snowy plains, forests and mountains in the north of [[Haera]], consisting of the [[Northern Mountains]] and the [[Northern Cities]]. 

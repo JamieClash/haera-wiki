@@ -1,0 +1,1 @@
+Snowspine is part of the [[Northern Mountains]] in [[Haera]], stretching across the north of the continent. It borders [[Ergo]] to the north and [[Schmine]] to the southwest. 

@@ -1,0 +1,1 @@
+Stockold is a mountain range in [[Central Haera]] that is located near [[Canvas]]. 

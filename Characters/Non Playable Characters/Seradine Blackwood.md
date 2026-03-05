@@ -1,0 +1,1 @@
+Seradine Blackwood is the wife of [[Forbur Wilkinberry]], and a highly renowned [[Human]] Sorcerer in the [[The School of Ego]]. She pioneered the development and theory of [[Stored Magic]] with her husband, paving the path forwards to attunement-less magic item use. 

@@ -1,0 +1,1 @@
+The Shadowfell is a [[Plane]] in [[The Material Realms]], home to grim wastelands, haunted ruins and the [[Domains of Dread]]. 

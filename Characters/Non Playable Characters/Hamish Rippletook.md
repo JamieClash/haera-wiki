@@ -1,0 +1,3 @@
+Hamish Rippletook is the acting director of the [[Seaside Trading Guild]] Guildhall based in [[Faeria]]. He is a [[Gnome]]. Though Faeria is on the opposite side of [[Haera]] to [[Altrae]], Rippletook is a reliable ally of [[Elaine Ridgewater]] since before she became the leader of the guild.
+
+Rippletook is often seen performing trade in the public market, protected by bodyguards of [[The People's Shield]]. 
