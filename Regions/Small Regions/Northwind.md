@@ -1,0 +1,1 @@
+Northwind is a region within [[Upper Central Haera]], covering a significant portion of the area's cold forests. It contains numerous small settlements, towns and minor cities. 

@@ -1,1 +1,0 @@
-The Adventurer's Guild is a far-reaching establishment that supports adventurers across [[Haera]], primarily based in [[Faeria]]. It is responsible for contracting adventurers for jobs and quests, and often provides supplies and/or resources for sale to aid them in their adventures. 

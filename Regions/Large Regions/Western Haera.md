@@ -5,3 +5,5 @@ It consists of:
 - [[Faeria]]
 - [[Landspine]]
 - [[Lune]]
+- [[Raea]]
+- [[Windswept Plains]]

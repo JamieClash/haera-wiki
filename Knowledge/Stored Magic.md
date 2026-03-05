@@ -1,5 +1,5 @@
 > "A breakthrough in Stored Magic could vastly improve strength and power of guards and armies, greatly heightening their performance against monstrous threats."
-> - Professor [[Forbur Wilkinberry]].
+> Professor [[Forbur Wilkinberry]].
 
 Stored magic is a magical theory by [[Forbur Wilkinberry]] and [[Seradine Blackwood]] that attunement to magic items requires a "magically-tangible" manifestation of the user's soul, thus aligning one's soul to the corresponding item.
 

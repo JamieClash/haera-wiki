@@ -1,3 +1,18 @@
 The People's Shield is a guard force deployed across all of [[Haera]], but based in [[Faeria]]. It aims to protect towns and cities from monster attacks, and regularly patrols across the continent to answer nearby emergencies if required. 
 
 The general public appreciate the Shield's protection, and share positive views for the guard force. The Shield is largely funded by the [[Government of Faeria]], but also earns money via dungeon deployments or cross-continent protection work. 
+
+Establishment found in:
+- [[Abstract]]
+- [[Altrae]]
+- [[Anecdote]]
+- [[Dragontail]]
+- [[Ego]]
+- [[Everbrook]]
+- [[Faeria]]
+- [[Hero's Hilt]]
+- [[Orhum]]
+- [[Reykja]]
+- [[Thawnia]]
+- [[The Kingdom of Marcell]]
+- and more...

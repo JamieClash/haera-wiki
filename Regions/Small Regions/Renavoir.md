@@ -1,1 +1,3 @@
-Renavoir is a rainforest situated in the south of [[Eastern Haera]]. It is home to many exotic animals and species, and...
+Renavoir is a rainforest situated in the south of [[Eastern Haera]]. It is home to many exotic animals, species and fruit. Its density and high humidity has made it difficult for cartographers to map out the region properly over the years, and many parts of it remain unexplored.
+
+Many adventurers have attempted to find hidden treasure in Renavoir, though thus far none have returned successful, or returned at all. 

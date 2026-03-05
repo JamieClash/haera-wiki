@@ -1,0 +1,3 @@
+Intrigue is a mysterious island in [[Southern Haera]]. It boasts an odd geological appearance, with towering mountains and peaks surrounded by quaint palm trees. Generations of monks and philosophers have travelled to Intrigue to seek inner peace or training, similar to the [[Forsaken Perch]].
+
+Its exotic palm trees produce various species of interesting fruit, often sold for very high prices due to its remoteness and exquisite taste.

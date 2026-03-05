@@ -3,3 +3,11 @@ The School of Ego is an established college primarily for wizards and sorcerers,
 Notable individuals:
 - Professor [[Forbur Wilkinberry]]
 - Professor [[Seradine Blackwood]]
+
+Establishments found in:
+- [[Altrae]]
+- [[Ego]]
+- [[Faeria]]
+- [[Hero's Hilt]]
+- [[Reykja]]
+- [[Thawnia]]

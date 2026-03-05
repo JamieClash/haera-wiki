@@ -1,0 +1,3 @@
+Queen Masja Alonzo is the current [[Aasimar]] monarch of [[Abstract]]. Before she became Queen, she was a notable inventor in the [[House of Alonzo]], developing many trinkets and devices helpful to the general public.
+
+She was a prevalent council member of the [[Scholars of Thought]], and had to step down after the passing of her brother [[Juan Alonzo]] three years ago. She is an amiable leader and members of Abstract are content with her ruling.
